@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on everything crypto and blockchaib related
 - 📫 How to reach me, you reach me on discord: rk222#3382 , also on twitter @Radostink222
 -   I want to find work as a IT
--   I like pizza 
+-   I like pizza and cofffee
 <!---
 radostink222/radostink222 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

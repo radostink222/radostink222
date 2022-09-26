@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to code to get more helpfull and start building my porfolio 
 - 💞️ I’m looking to collaborate on everything crypto and blockchaib related
 - 📫 How to reach me, you reach me on discord: rk222#3382 , also on twitter @Radostink222
--   I want to find work as a IT
+-   I want to find work as a IT or manager
 -   I like pizza and cofffee
 <!---
 radostink222/radostink222 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
